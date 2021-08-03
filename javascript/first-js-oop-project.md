@@ -2,7 +2,7 @@
 
 ### Projected Time
 
-Total: 65-80 min
+Total: 150 min
 
 - Independent Practice: 15 min
 - Materials: 25 min
